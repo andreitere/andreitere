@@ -12,7 +12,7 @@ and the latest F1 races.
 - 📸 Photography aficionado - capturing moments, one snap at a time.
 - 🏎️ Formula 1 enthusiast - Ask me about my favorite circuits and races!
 - 💬 Let's talk about code, photography, F1, or anything tech-related.
-- 📫 How to reach me: [Insert your email or LinkedIn profile]
+- 📫 How to reach me: [LinkedIn](https://www.linkedin.com/in/andrei-terecoasa) 
 
 ## Connect with Me 🌐
 
